@@ -11,7 +11,7 @@ Vegamovies has gained attention for its wide collection of movies, TV shows, and
 
 The website typically offers multiple formats and resolutions, making it easy for users to choose the quality that fits their device and internet speed. This can be particularly appealing to people who may not afford subscriptions to paid streaming platforms, allowing them to access the latest films and shows without additional cost.
 
-## vegamovies download
+## Vegamovies Download
 
 vegamovies
 
