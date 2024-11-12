@@ -3,7 +3,7 @@ Vegamovies has gained attention for its wide collection of movies, TV shows, and
 
 
 
-➤ ►🌍📺📱👉 12th Fail (𝟸𝟶𝟸𝟺) 𝙵𝚞𝚕𝚕 𝙼𝚘𝚟𝚒𝚎 (https://zoseme.com/)
+[➤ ►🌍📺📱👉 12th Fail (𝟸𝟶𝟸𝟺) 𝙵𝚞𝚕𝚕 𝙼𝚘𝚟𝚒𝚎] (https://zoseme.com/)
 
 ➤ ►🌍📺📱👉 12th Fail (𝟸𝟶𝟸𝟺) 𝙵𝚞𝚕𝚕 𝙼𝚘𝚟𝚒𝚎 (https://zoseme.com/)
 
